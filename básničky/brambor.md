@@ -11,3 +11,4 @@ Na tebe, ty bramboro.
 
 Kdyby tudy projel vláček,
 byl by z tebe bramboráček!
+bramboráček bych si dala!
